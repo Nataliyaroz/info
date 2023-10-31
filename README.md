@@ -8,5 +8,7 @@
 
 13.07.2000
 
-![Мое фото](https://photos.app.goo.gl/WHMoGkav1eFqVYCz6)
+![IMG-4564.jpg](https://postimg.cc/bdvx9wyW)
+
+
 
